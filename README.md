@@ -67,3 +67,9 @@ Remember, the rental market is always changing; therefore it's critical to be fl
 In the end, choosing the correct rental script is paramount for your rental business's success and expansion. Utilizing a versatile and intuitive rental script streamlines operations, improves customer satisfaction, and positions your company for sustained profitability.
 
 With the Migrateshop’s **[rental script](https://migrateshop.com/rental-script/)**, you pave the path toward achieving your objectives and scaling new heights in the rental sector. Stay dedicated to innovation, customer care, and operational excellence to witness your rental business flourish.
+
+**Contact us,** 
+
+Call: +91- 8300505021
+
+Mail ID-: support@migrateshop.com  
