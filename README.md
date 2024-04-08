@@ -66,8 +66,11 @@ In the end, choosing the correct rental script is paramount for your rental busi
 
 With the Migrateshop’s **[rental php script](https://migrateshop.com/rental-script/)**, you pave the path toward achieving your objectives and scaling new heights in the rental sector. Stay dedicated to innovation, customer care, and operational excellence to witness your rental business flourish.
 
+Discover your rental business now - **https://migrateshop.com/rental-script/**
+
 **Contact us,** 
 
 Call: +91- 8300505021
 
 Mail ID-: support@migrateshop.com  
+
