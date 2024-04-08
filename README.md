@@ -1,4 +1,4 @@
-<h1 align="center"> Rental Script: Strategies and tips to succeed in your rental business</h1> 
+<h1 align="center"> Rental Script: Strategies and Tips to Succeed in your Rental Business</h1> 
 
 Running a successful rental business requires a multifaceted approach that goes beyond merely offering a product or service. It's about understanding your market, leveraging technology, and implementing smart strategies that set you apart from the competition. 
 
